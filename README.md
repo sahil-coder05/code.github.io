@@ -1,7 +1,8 @@
 ---
 # Profile: " Sahil Singh"
 ---
-![alt text](https://github.com/user-attachments/assets/2520dad6-24e1-43fc-a104-8e977eab9305)
+![alt text](https://github.com/user-attachments/assets/863e8413-1f71-4443-99e3-6945183e5b1c)
+
 
 # Personal Information 
 
